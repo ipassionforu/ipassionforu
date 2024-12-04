@@ -11,7 +11,7 @@ Artificial Intelligence is leading the way in Information Technology.
 ```
 
 
-***Passion For You***
+***Passion For U***
 <br>
 ***Rabbit Brother 🐾***
 
